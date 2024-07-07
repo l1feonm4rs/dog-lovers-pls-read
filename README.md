@@ -1,7 +1,7 @@
 # UK DOG LOVERS PLS READ!
 If you live in West Yorkshire (or are willing to drive there) and are looking to adopt a dog, please check out West Yorkshire Greyhound Trust (link in profile)! They have lots of greyhounds waiting for homes, and will try to match you with the greyhound that best suits your needs. They are mostly ex-racing greyhounds aged 3+, however some younger ones were given up before their career had started. 
 
-Greyhounds are sighthounds, which means they have LOOOOOONG snouts, and the internet seems to love those. While they aren't quite on Borzoi level, they come in close second!
+Greyhounds are sighthounds, which means they have LOOOOOONG memeable snouts. While they aren't quite on Borzoi level, they come in close second!
 
 Although they have been used for racing, greyhounds are not that high-energy. They are built for speed, not endurance. They love the couch, LOVE sleeping, and love a cuddle. But this isn't to say they don't need exercise - they need at least 30 minutes exercise per day; ideally a daily and nightly walk. If it's securely fenced and has enough space, you can also let them run around off-lead in your garden.
 

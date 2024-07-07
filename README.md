@@ -8,3 +8,5 @@ Greyhounds are large dogs (26-40kg / 57-88lbs), which is something to consider. 
 Unfortunately, they are currently unable to cat test the greyhounds, so if you own cats you cannot home one of them.
 
 If you are interested and are able to home a greyhound, please do visit their website!
+
+![image](https://github.com/l1feonm4rs/l1feonm4rs/assets/143324379/5afe5833-200c-4099-81e1-5e2813fc9ff9)

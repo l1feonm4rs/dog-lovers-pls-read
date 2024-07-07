@@ -5,7 +5,7 @@ Greyhounds are sighthounds, which means they have LOOOOOONG memeable snouts. Whi
 
 Although they have been used for racing, greyhounds are not that high-energy. They are built for speed, not endurance. They love the couch, LOVE sleeping, and love a cuddle. But this isn't to say they don't need exercise - they need at least 30 minutes exercise per day; ideally a daily and nightly walk. If it's securely fenced and has enough space, you can also let them run around off-lead in your garden.
 
-Greyhounds are large dogs (26-40kg / 57-88lbs), which is something to consider. They will have more expensive vet bills and food, so if you cannot afford please do not feel obligated to home one. On the flip side, as they are shorthaired dogs, they require minimal grooming so grooming costs go down exponentially. They do still need to be bathed and brushed every once in a while though. (bathed once or twice a year, with the exception of them rolling in mud or something of course)
+Greyhounds are large dogs (26-40kg / 57-88lbs), which is something to consider. They will have more expensive vet bills and food, so if you cannot afford please do not feel obligated to home one. On the flip side, as they are shorthaired dogs, they require minimal grooming so grooming costs go down exponentially, though they do still need to be bathed and brushed every once in a while. (bathed once or twice a year, with the exception of them rolling in mud or something of course)
 
 Unfortunately, they are currently unable to cat test the greyhounds, so if you own cats you cannot home one of them.
 

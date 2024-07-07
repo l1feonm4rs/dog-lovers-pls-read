@@ -1,7 +1,7 @@
 # UK DOG LOVERS PLS READ!
 If you live in West Yorkshire (or are willing to drive there) and are looking to adopt a dog, please check out West Yorkshire Greyhound Trust (link in profile)! They have lots of greyhounds waiting for homes, and will try to match you with the greyhound that best suits your needs. They are mostly ex-racing greyhounds aged 3+, however some younger ones were given up before their career had started. 
 
-Greyhounds have LOOOOOONG snouts which the internet seems to love, and while they aren't quite on Borzoi level they come in close second!
+Greyhounds are sighthounds, which means they have LOOOOOONG snouts, and the internet seems to love those. While they aren't quite on Borzoi level, they come in close second!
 
 ![image](https://github.com/l1feonm4rs/l1feonm4rs/assets/143324379/5afe5833-200c-4099-81e1-5e2813fc9ff9)
 
